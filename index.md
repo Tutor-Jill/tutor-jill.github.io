@@ -45,5 +45,6 @@ Quite often students can achieve great successes if only they are able to access
 
 Contact Jill Geddes today through one of the following means
 
-email	info@tutorjill.com
-Phone	+44 (0) 7863 299997
+email:	info@tutorjill.com
+
+Phone:	+44 (0) 7863 299997
