@@ -33,6 +33,30 @@ Uzoma  Mezue May 2012
 
 When asked what he thought of the lesson, M said “fantastic!” (Child, aged 9)
 
+## Philosophy for Children
+Jill is trained to SAPERE level 3 Philosophy for Children and can train teachers in the technique to level 1 in order that they can teach their classes with this method.
+
+### What is Philosophy for Children?
+
+P4C is a way of teaching that encourages higher order thinking skills through the development of questioning techniques.
+
+### Why is it so powerful?
+
+Personal Learning and Thinking Skills (PLTs) are developed
+Social and Emotional Literacy is developed (SEAL)
+Emotional Health and Wellbeing is developed
+Children learn a language and a way of communicating with others that is non- confrontational.
+It builds a community of enquiry.
+“It has been the most powerful training I have had and I have carried it forward to my new school. All my students will do it from the beginning of year 7”
+
+A. Wiseman, English teacher.
+
+### About Jill as a trainer
+
+‘ There were many excellent elements to this course, including well planned and executed exercises that reinforced a variety of important points in memorable ways. The pace and distribution of the materials was very good, too, as was the manner of engagement with the participants.’ Sara Liptai November 2011
+
+Contact Jill for more information. Jill can introduce your staff to P4C in a staff meeting, train for a whole day introduction or take the staff through the 2 day level one course.  P4C can be used in many different subject areas and is a powerful tool to develop students. One Headteacher felt it was essential to her school and that it worked best because all the staff were trained in the technique.
+
 ## About
 
 Jill Geddes has a Masters in History, a Post Graduate Certificate in Education (History and English) and a Post Graduate Certificate in Literacy and Dyslexia. In 2012 she gained the National Accreditation for Special Needs Co-Ordinators and a Post Graduate Certificate in Action Research from Cambridge University. She has been a teacher in secondary schools for 30 years, the last 10 in an inner London Secondary School. This has given her a deep understanding of the needs of a second language learner and tactics to help them with literacy. She has been a Head of History in 2 schools, teaching History successfully to A Level. In the academic year 2010-2011 she  tutored literacy on the government One to One scheme. She is now a Special Needs Co-ordinator in a primary school and a specialist dyslexia tutor. She also runs a successful Cub Scout group. This has given her excellent experience of students from the age of 5 years up to the age of 18.
