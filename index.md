@@ -1,5 +1,3 @@
-# Tutor Jill
-
 Would you, or your son or daughter, like extra help with exams? Perhaps you might like to learn a little extra? Brush up on those old skills? Have you got a child struggling with reading?
 
 Jill Geddes can help you with all of these and specialises in the following areas
